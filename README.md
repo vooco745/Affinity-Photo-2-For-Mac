@@ -1,0 +1,1 @@
+# Affinity-Photo-2-For-Mac
